@@ -1,0 +1,2 @@
+# Obsidianestudio
+Solo notas
